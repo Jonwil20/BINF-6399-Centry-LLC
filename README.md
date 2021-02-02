@@ -6,7 +6,7 @@
   
   technology,we take your own blood and basically repurpose the plasma within to make it work
   
-  overtime in specific areas that need a little more TLC! Not nonly that; our technology is less
+  overtime in specific areas that need a little more TLC! Not only that; our technology is less
   
   invasive, more cost- effective, and less frequent than other remedies currently being used. The
   
